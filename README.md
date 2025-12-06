@@ -1,2 +1,0 @@
-# TeamA
-Test Uchun Ochildi 
